@@ -1,4 +1,4 @@
-Sweet Bonanza : Sweet Bonanza Oyna - Sweet Bonanza Demo
+<h1 tabindex="-1" class="heading-element" dir="auto">Sweet Bonanza : Sweet Bonanza Oyna - Sweet Bonanza Bonus</h1>
 
 <a href="https://shortlink.ist/blackman" rel="nofollow">SWEET BONANZA OYNAMAK İÇİN LÜTFEN BU LİNKE TIKLAYINIZ</a>
 
